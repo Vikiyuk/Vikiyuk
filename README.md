@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-My name is Yurii Maisuradze, and I'm a master's student at Cracow University of Technology.
+My name is Yurii Maisuradze, and I'm a Master's student at Cracow University of Technology.
 
 ## 🔍 Seeking Opportunities
 
